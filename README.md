@@ -1,4 +1,6 @@
-## Hi there 👋
+![image](https://github.com/user-attachments/assets/59dd05ab-eb5f-419f-834c-c63fcd6c4fbf)
+
+
 
 <!--
 **shinobiyaoi/shinobiyaoi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
