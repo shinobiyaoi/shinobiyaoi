@@ -2,9 +2,8 @@
 Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
 
 
-![image](https://github.com/user-attachments/assets/59dd05ab-eb5f-419f-834c-c63fcd6c4fbf)
+![image](https://i.pinimg.com/736x/61/40/20/614020cbd7c69d65ceaa3f427a991bc6.jpg)
 
-AC: cuptoast
 
 
 
