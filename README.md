@@ -1,10 +1,9 @@
 
 Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
+![image](https://64.media.tumblr.com/7907ccb8697128b68ee04a05d58d20fd/45c611fa9099e1ac-36/s640x960/27952b47b16aa49625f795011d3329a394e748dc.pnj)
 
-![image](https://img1.picmix.com/output/stamp/normal/4/7/0/4/2654074_2721c.gif)
 
-
-: ̗̀[BYF](https://rentry.co/sakukashi) ➛ [Tiktok](https://www.tiktok.com/@fishslab29?is_from_webapp=1&sender_device=pc) ❄︎ [Twitter](https://x.com/shinobiyaoi) ! ! DISC:Kakashigasm
+:                      ̗̀[BYF](https://rentry.co/sakukashi) (˶˃ ᵕ ˂˶) [Tiktok](https://www.tiktok.com/@fishslab29?is_from_webapp=1&sender_device=pc) ✿˖˚ [Twitter](https://x.com/shinobiyaoi) ! !
 
 
 
