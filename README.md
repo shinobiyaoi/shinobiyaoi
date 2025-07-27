@@ -1,4 +1,4 @@
-![profileviews](https://komarev.com/ghpvc/?username=shinobiyaoi&color=1e244d&label=meowers&style=plastic)
+![profileviews](https://komarev.com/ghpvc/?username=shinobiyaoi&color=1e244d&label=crazystalkers&style=plastic)
 
 
 Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
