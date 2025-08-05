@@ -4,7 +4,7 @@
  
 Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
 
- ̗̀[BYF](https://rentry.co/teamkakashi) (˶˃ ᵕ ˂˶) [STRAW](https://team7.straw.page)   𝄂𝄚𝅦𝄚𝄞𝅄ㅤ[Twitter](https://x.com/shinobiyaoi) ❤︎ ! !
+ ̗̀[BYF](https://rentry.co/teamkakashi) (˶˃ ᵕ ˂˶) [STRAW](https://team7.straw.page)   𝄂𝄚𝅦𝄚𝄞𝅄ㅤ[Twitter](https://x.com/shinobiyaoi) 🍀 ! !
 
   <img width="470" height="400" src="https://pbs.twimg.com/media/GqISdn2bsAAM-QB?format=png&name=small">
 
