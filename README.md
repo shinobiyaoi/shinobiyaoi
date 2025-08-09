@@ -2,13 +2,12 @@
 
 Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
 
- ̗̀[BYF](https://rentry.co/teamkakashi) (˶˃ ᵕ ˂˶) [STRAW](https://team7.straw.page)   𝄞𝅄[TWT](https://x.com/shinobiyaoi) 🍀 ! !
+ ̗̀[BYF](https://rentry.co/teamkakashi) (˶˃ ᵕ ˂˶) [STRAW](https://team7.straw.page)   𝄞𝅄[TWT](https://x.com/shinobiyaoi) ⚢ ! !
 
-![header](https://pbs.twimg.com/media/GPalBdCbIAA27bN?format=jpg&name=medium)
+  <img width="500" height="450" src="https://pbs.twimg.com/media/GpkMrklbsAAaOV_?format=png&name=900x900">
 
 𝄞 - ♫⋆｡♪ ₊˚♬ﾟ.
 
-[rntry masterlist](https://rentry.co/kakashigasm)
 
 
 <!--
