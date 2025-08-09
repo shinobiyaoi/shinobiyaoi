@@ -10,7 +10,7 @@ Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
 
 𝄞 - ♫⋆｡♪ ₊˚♬ﾟ.
 
-
+[rntry masterlist](https://rentry.co/kakashigasm)
 
 
 
