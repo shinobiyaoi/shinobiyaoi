@@ -2,9 +2,11 @@
 
 Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
 
- ̗̀[BYF](https://rentry.co/teamkakashi) (˶˃ ᵕ ˂˶) [STRAW](https://team7.straw.page)   𝄞𝅄[TWT](https://x.com/shinobiyaoi) ⚢ ! !
+ ̗̀[BYF](https://rentry.co/minatosteam) (˶˃ ᵕ ˂˶) [STRAW](https://team7.straw.page)   𝄞𝅄[TWT](https://x.com/shinobiyaoi) ⚢ ! !
 
   <img width="500" height="450" src="https://pbs.twimg.com/media/GpkMrklbsAAaOV_?format=png&name=900x900">
+
+  [Naru disc server ^__^!!!](https://discord.gg/u62BemTK)
 
 𝄞 - ♫⋆｡♪ ₊˚♬ﾟ.
 
