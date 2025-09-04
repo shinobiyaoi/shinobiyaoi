@@ -7,7 +7,7 @@
   <a href="https://ethubsreal.straw.page/">STRAW</a>
 </p>
 
-<p align="center"> <img width="500" height="450" src="https://pbs.twimg.com/media/GobZtRdWQAAY6Uc?format=jpg&name=medium">
+<p align="center"> <img width="500" height="450" src="https://pbs.twimg.com/media/GkfrXuEbwAAou4k?format=png&name=900x900">
  
 <p align="center"> ⚢ 
   <a href="https://rentry.co/kakashigasm">Rentry Masterlist</a>
