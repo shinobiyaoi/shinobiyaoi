@@ -3,7 +3,7 @@
 <p align="center"> Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
 
 <p align="center">
-  <a href="https://rentry.co/minatosteam">BYF</a> (˶˃ ᵕ ˂˶)
+  <a href="https://rentry.co/minatosteam">BYF+MORE</a> (˶˃ ᵕ ˂˶)
   <a href="https://ethubsreal.straw.page/">STRAW</a>
 </p>
 
