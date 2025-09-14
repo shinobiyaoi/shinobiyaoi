@@ -3,13 +3,13 @@
 <p align="center"> Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
 
 <p align="center">
-  <a href="https://rentry.co/minatosteam">BYF+MORE</a> (˶˃ ᵕ ˂˶)
+  <a href="https://rentry.co/minatosteam">BYF+MORE</a> ( ´ཀ` )
   <a href="https://ethubsreal.straw.page/">STRAW</a>
 </p>
 
 <p align="center"> <img width="500" height="450" src="https://pbs.twimg.com/media/FzWlD96aIAAWFw2?format=jpg&name=large">
  
-<p align="center"> ⚢ 
+<p align="center"> 𖣐 
   <a href="https://rentry.co/kakashigasm">Rentry Masterlist</a>
 </p>
 
