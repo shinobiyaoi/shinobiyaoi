@@ -4,7 +4,6 @@
 
 <p align="center">
   <a href="https://rentry.co/minatosteam">BYF+MORE</a> ( ´ཀ` )
-  <a href="https://ethubsreal.straw.page/">STRAW</a>
 </p>
 
 <p align="center"> <img width="500" height="450" src="https://pbs.twimg.com/media/FzWlD96aIAAWFw2?format=jpg&name=large">
