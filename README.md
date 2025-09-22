@@ -1,6 +1,6 @@
 ![profileviews](https://komarev.com/ghpvc/?username=shinobiyaoi&color=1e244d&label=ninjafujos&style=plastic)
 
-<p align="center"> Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
+ <p align="center"> Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
 
 <p align="center">
   <a href="https://rentry.co/minatosteam">BYF+MORE</a> °˖𓍢ִ໋🍃
