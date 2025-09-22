@@ -9,7 +9,7 @@
 <p align="center"> <img width="500" height="450" src="https://pbs.twimg.com/media/GYfOsyjakAAwXlN?format=jpg&name=medium">
  
 <p align="center"> ❀
-  <a href="https://rentry.co/kakashigasm">Rentry Masterlist</a>
+  <a href="https://appleslab.atabook.org/">Atabook!</a>
 </p>
 
 
