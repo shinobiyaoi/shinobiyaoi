@@ -9,7 +9,7 @@
 <p align="center"> <img width="500" height="450" src="https://pbs.twimg.com/media/GYICYibX0AAvPvi?format=jpg&name=large">
  
 <p align="center"> 𖤝
-  <a href="https://appleslab.atabook.org/">Atabook!</a>
+  <a href="https://jinchuriki.atabook.org">Atabook!</a>
 </p>
 
 
