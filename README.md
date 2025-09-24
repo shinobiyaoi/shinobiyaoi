@@ -6,7 +6,7 @@
   <a href="https://rentry.co/minatosteam">BYF+MORE</a> °˖𓍢ִ໋🍃
 </p>
 
-<p align="center"> <img width="500" height="450" src="https://pbs.twimg.com/media/GYfOsyjakAAwXlN?format=jpg&name=medium">
+<p align="center"> <img width="500" height="450" src="https://pbs.twimg.com/media/GYICYibX0AAvPvi?format=jpg&name=large">
  
 <p align="center"> ❀
   <a href="https://appleslab.atabook.org/">Atabook!</a>
