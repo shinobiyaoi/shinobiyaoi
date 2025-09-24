@@ -3,16 +3,16 @@
  <p align="center"> Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
 
 <p align="center">
-  <a href="https://rentry.co/minatosteam">BYF+MORE</a> ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـ
+ ⌞ ⚠ ⌝ <a href="https://rentry.co/minatosteam">BYF+MORE</a> ☠︎︎
 </p>
 
-<p align="center"> <img width="500" height="450" src="https://pbs.twimg.com/media/GYICYibX0AAvPvi?format=jpg&name=large">
+<p align="center"> <img width="500" height="450" src="https://pbs.twimg.com/media/GEZ-htiawAA2P2x?format=jpg&name=4096x4096">
  
-<p align="center"> 𖤝
+<p align="center"> ☣︎.ᐟ.ᐟ 
   <a href="https://jinchuriki.atabook.org">Atabook!</a>
 </p>
 
 
 
-<p align="center"> <img width="500" height="100" src="https://64.media.tumblr.com/487b30d11575cc770e48f651c0021855/c29d5cb0c35c71ea-6b/s1280x1920/ef32beda0cfef2b94602d35e7e857396d9f115e2.pnj">
+<p align="center"> <img width="500" height="100" src="https://64.media.tumblr.com/b5479027dc5a35e79c073eaaca780b49/e289a2620bfd53d4-65/s640x960/7af395123c14a4c7a9a178d6a4fb3c705d897722.gif">
  
