@@ -3,7 +3,7 @@
  <p align="center"> Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
 
 <p align="center">
- ⌞ ⚠ ⌝ <a href="https://rentry.co/minatosteam">BYF+MORE</a> ☠︎︎
+ ⌞ ⚠ ⌝ <a href="https://rentry.co/teamobikaka">BYF+MORE</a> ☠︎︎
 </p>
 
 <p align="center"> <img width="500" height="450" src="https://pbs.twimg.com/media/FzWlD96aIAAWFw2?format=jpg"name=large"<img width="1230" height="1230" alt="image" src="https://github.com/user-attachments/assets/29f84356-4e29-470e-b2ae-8541eacc11e9" />
