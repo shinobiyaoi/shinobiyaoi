@@ -4,7 +4,7 @@
  ⌞ ⚠ ⌝  ☠︎︎  <a href="https://residentvillage.atabook.org">Atabook!</a> ☣︎.ᐟ.ᐟ 
 </p>
 
-<p align="center"> <img width="500" height="450" src="https://64.media.tumblr.com/b0d27b5f1da9122b48148574d1b47cf4/fc735c3d5700f341-99/s1280x1920/da4374cf5d1739a317f1185cb23e3d76dfbdd2d9.pnj" />
+<p align="center"> <img width="500" height="450" src="https://media.discordapp.net/attachments/1397712754760220786/1435707381756461066/IMG_8732.gif?ex=690cf231&is=690ba0b1&hm=ae5b3e02b49a9dbd9006701c40b05dd6806b2fecd4debfb0f11b3fe399b02038&=&width=1600&height=900" />
 
  <p align="center"> Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
 
