@@ -1,7 +1,7 @@
 ![profileviews](https://komarev.com/ghpvc/?username=shinobiyaoi&color=1e244d&label=evilfujos&style=plastic)
  <p align="center">  ⌞ 𝜗𝜚 ⌝: Im on ponytown to JOKE and LIE dont come to me for what ive said on this game
  
- <p align="center"> ₊‧꒰ა <a href="https://residentvillage.atabook.org">Atabook!</a> ໒꒱ ‧₊ 
+ <p align="center"> ₊‧꒰ა <a href="https://applejoshi.atabook.org">Atabook!</a> ໒꒱ ‧₊ 
 <p align="center"> <img width="500" height="550" src="https://files.catbox.moe/xs1uwu.png" />  
 
 
